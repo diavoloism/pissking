@@ -7,7 +7,7 @@ Anyone under 16, Idle chat is fine but I prefer friends close in my age range.
 
 If you constantly talk about drama / center your whole life around making others miserable.
 
-If you PDA Trish Una, Risotto Nero, or Cioccolata.
+I sometimes gatekeep Trish Una, Risotto Nero, Ada Mesmer or Cioccolata. I love them more than you <3
 
 TT/TD or any other variant claimants. This does not exist on a pixel game.
 
