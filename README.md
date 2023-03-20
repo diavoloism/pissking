@@ -1,16 +1,15 @@
-### Hi there 👋
+<img src="https://cdn.discordapp.com/attachments/1082540281624285254/1087460203135512786/hjhkjhgk.png" width="320" >
 
-<!--
-**pissking/pissking** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**⛤🩸 . PT Info** // *Do Not Interact*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Anyone under 16, Idle chat is fine but I prefer friends close in my age range.
+
+If you constantly talk about drama / center your whole life around making others miserable.
+
+If you PDA Trish Una, Risotto Nero, or Cioccolata.
+
+TT/TD or any other variant claimants. This does not exist on a pixel game.
+
+Mental illness fakers. {DID, Psychosis, etc.}
+
