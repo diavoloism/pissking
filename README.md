@@ -13,3 +13,4 @@ TT/TD or any other variant claimants. This does not exist on a pixel game.
 
 Mental illness fakers. {DID, Psychosis, etc.}
 
+Roleplayers, and/or any ship interaction
