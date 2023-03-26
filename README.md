@@ -7,7 +7,7 @@ PT INFO ~ *Do NOT Interact*
 
 `Ponies & Kins of Diavolo` 
 
-IF you base your entire personality off drama/making other's miserable.
+If you base your entire personality off drama/making other's miserable.
 
 `Anyone under 16`. Idle chat is fine but I prefer befriending people closer in age.
 
