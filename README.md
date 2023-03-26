@@ -5,7 +5,7 @@
 
 PT INFO ~ *Do NOT Interact* 
 
-`Ponies & Kins of Diavolo` 
+`Ponies, Kins, Lovers, etc. of Diavolo [JJBA]` 
 
 If you base your entire personality off drama/making other's miserable.
 
